@@ -1,3 +1,5 @@
+goog doc: https://docs.google.com/document/d/1mURksr2TdL6jj26LQE8MzQTKdrSz2gVI5r-oi0Bdl5s/edit?usp=drivesdk 
+
 yt link: 
 https://youtu.be/0WRbc2tcOkE
 
